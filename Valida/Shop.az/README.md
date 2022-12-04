@@ -1,0 +1,1 @@
+# Shopend-sadece-sekilleri-editle
